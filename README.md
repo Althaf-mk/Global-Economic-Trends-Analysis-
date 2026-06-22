@@ -1,0 +1,2 @@
+# Global-Economic-Trends-Analysis-
+.
